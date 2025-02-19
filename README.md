@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @shamsitdinov
+- 👋 Hi, I’m Shamsitdinov Nodirbek 
